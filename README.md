@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pravinjanganure
+- 👋 Hi, I’m @PRAJWALKURTAKOTI
 - 👀 I’m interested in coder
 - 🌱 I’m currently learning diploma
 - 💞️ I’m looking to collaborate on tata
